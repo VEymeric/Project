@@ -13,3 +13,6 @@ etant donné que nous sommes encore au debut et en tant que leader naturel du gr
 Bambou ici.
 
 Bambou la.
+
+YOYOYO
+LUC est une merde
